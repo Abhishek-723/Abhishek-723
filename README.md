@@ -1,7 +1,4 @@
-### Hi there 👋
-
-<!--
-**Abhishek-723/Abhishek-723** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+### Hi there, here is a little info about me 👋
 
 Here are some ideas to get you started:
 
