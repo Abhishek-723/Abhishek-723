@@ -12,4 +12,4 @@ Here are some ideas to get you started:
 - 💬 Ask me about ... Anything
 - 📫 How to reach me: ... [ mail: abhishekpradhan931@gmail.com ]
 - 😄 Pronouns: ... He/him
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: ... I'm a memer
